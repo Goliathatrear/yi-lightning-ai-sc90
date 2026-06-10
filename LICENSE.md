@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Goliathatrear.github.io/yi-lightning-ai-sc90/ ) |
  |---------------------|----------------------:|
 
 
