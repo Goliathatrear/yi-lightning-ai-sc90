@@ -1,4 +1,4 @@
-# 
+# Natif Yi-Lightning modèles. Avec intégration de base de données vectorielle et gestion de la mémoire — optimisé pour des performances et une efficacité maximales.
 
 
 
